@@ -1,1 +1,1 @@
-Arquivos de atividades qyue fiz
+Arquivos de atividades que fiz
